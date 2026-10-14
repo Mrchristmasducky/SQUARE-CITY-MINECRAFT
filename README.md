@@ -2,7 +2,7 @@
 Im making a remake of square city. More details below!!!!!!
 READ ME IF YOU WANT THE WORLD!
 
-MODS: https://www.curseforge.com/minecraft/modpacks/cash-and-nico-requiredforworld/preview 
+MODS: https://drive.google.com/drive/folders/1fj2C9fhTw-6sDjl0prDK_8Zz7o38KQwK
  
 Also, if you are using this on a video, please credit me. It could be in, the description, comments, or anywhere else that users can see that i made it.
 
